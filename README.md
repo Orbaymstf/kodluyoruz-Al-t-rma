@@ -1,1 +1,1 @@
-# kodluyoruz-Al-t-rma
+# kodluyoruz-Alistirma
